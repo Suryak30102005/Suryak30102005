@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Suryak252006
+- 👋 Hi, I’m @Suryak30102005
 - 👀 I’m interested in Product management
 - 🌱 I’m currently learning ui/ux
 - 📫 reach me through mail
